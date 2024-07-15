@@ -5,6 +5,5 @@
 
 | ----------- | ----------- |----------- |
 
-|15-07-2024 | Dr. Pyare lal Garg |
-| told us important things  | 
+|15-07-2024 | Dr. Pyare lal Garg | told us important things  | 
 
